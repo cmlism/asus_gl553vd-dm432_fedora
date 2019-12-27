@@ -1,0 +1,1 @@
+# asus_gl553vd-dm432_fedora
